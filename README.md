@@ -1,4 +1,4 @@
-# RankMath Coupon Code
+# RankMath Coupon Code 2025: Claim 17% Discount
 
 ![RankMath Feature image](https://github.com/SEO-Deals/RankMath-Coupon-Code/blob/main/Img/1%20-%20RankMath%20Feature%20Image.png)
 
